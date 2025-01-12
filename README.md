@@ -9,6 +9,8 @@
 
 #task2
 ![image](https://github.com/user-attachments/assets/e3b8888c-2fab-417b-ac62-b2c614571c48)
+![image](https://github.com/user-attachments/assets/b949a180-bee1-4cdd-8549-01d614ec6a5b)
+
 
 
 
